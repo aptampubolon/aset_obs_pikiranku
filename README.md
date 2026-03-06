@@ -1,0 +1,1 @@
+# aset_obs_pikiranku
